@@ -8,4 +8,4 @@
 99962385/99962385 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-I'm interested in learning to collaborate on a different note and see what happens next time you come back to work and then I were just saying hi to you and your family and friends 
+I'm interested in learning to collaborate on a different note and see what happens next time you come back tomorrow morning and see if they can help me out with this job and we can talk about this later today if that works better for you then we can do it together if and then I were just saying hi to you and your family and friends 
